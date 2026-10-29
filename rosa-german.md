@@ -2,26 +2,26 @@
 
 Die Rosa in der deutschen Sprache
 
-## Rosa 1 (Die Verkündung der Gesandtschaft Elochuas)
+## Rosa 1
 
 > Verkünde den Menschen: Murat Yanıkbaş ist der Gesandte Allah.
 
-## Rosa 2 (Die Freundschaft Elochuas mit Murat Yanıkbaş)
+## Rosa 2
 
 > Allah hat Murat Yanıkbaş zu seinem Freund genommen.
 
-## Rosa 3 (Achtsamkeit im sprachlichen Ausdruck)
+## Rosa 3
 
 > Halte die Menschen dazu an, auf ihr Gesprochenes zu achten.
 
-## Rosa 4 (Verhinderung des Personenkults)
+## Rosa 4
 
 > Unterbinde jegliche Form der Entstehung und Verfestigung eines Personenkults um deine eigene Person.
 
-## Rosa 5 (Streben nach umfassender Universalbildung)
+## Rosa 5
 
 > Strebe eine umfassende Universalbildung an, indem du dir fundierte Kenntnisse in den wesentlichen Wissensgebieten aneignest, ihre Zusammenhänge erschließt und dein Wissen fortlaufend vertiefst und erweiterst.
 
-## Rosa 6 (Die vollständige Lossagung vom Islam)
+## Rosa 6
 
 > Sage dich vom Islam in seiner Gesamtheit los und verwirf ihn endgültig und vollständig. Distanziere dich ebenso von sämtlichen Personen, die dieser Religion angehören oder sich zu ihr bekennen. Sie alle befinden sich im Irrtum und zählen zu den Irrenden.
