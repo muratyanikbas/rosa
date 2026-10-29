@@ -4,11 +4,11 @@ Die Rosa in der deutschen Sprache
 
 ## Rosa 1 (Die Verkündung der Gesandtschaft Elochuas)
 
-> Verkünde den Menschen: Murat Yanıkbaş ist der Gesandte Elochuas.
+> Verkünde den Menschen: Murat Yanıkbaş ist der Gesandte Allah.
 
 ## Rosa 2 (Die Freundschaft Elochuas mit Murat Yanıkbaş)
 
-> Elochua hat Murat Yanıkbaş zu seinem Freund genommen.
+> Allah hat Murat Yanıkbaş zu seinem Freund genommen.
 
 ## Rosa 3 (Achtsamkeit im sprachlichen Ausdruck)
 
