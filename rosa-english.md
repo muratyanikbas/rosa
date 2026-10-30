@@ -25,3 +25,7 @@ Rosa in the English language (American English)
 ## Rosa 6
 
 > Renounce Islam in its entirety and reject it definitively and completely. Likewise, distance yourself from all individuals who belong to or profess adherence to this religion. They are all in error and are among those who have gone astray.
+
+## Rosa 7
+
+> O Messenger, do not let what people say and think about you distress you, and do not feel abandoned. You will find among the people men and women who have been marked by me and are awaiting my commands. I know their entire life stories from beginning to end, just as we know your entire life story.

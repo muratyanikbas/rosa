@@ -25,3 +25,7 @@ Türkçe dilinde Rosa
 ## Rosa 6
 
 > İslam'ın bütününden uzaklaş ve onu kesin olarak ve tamamen reddet. Aynı şekilde, bu dine mensup olan veya bu dine bağlılığını ifade eden tüm kişilerden de kendini uzak tut. Onların hepsi yanılgı içindedir ve yanılanlar arasında yer almaktadır.
+
+## Rosa 7
+
+> Ey Elçi, insanların senin hakkında söyledikleri ve düşündükleri seni üzmesin ve kendini yalnız bırakılmış hissetme. İnsanlar arasında, tarafımdan damgalanmış ve emirlerimi bekleyen erkekler ve kadınlar bulacaksın. Senin bütün hayat hikâyeni bildiğimiz gibi, onların da hayat hikâyelerini başından sonuna kadar biliyorum.
