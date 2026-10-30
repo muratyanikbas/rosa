@@ -29,3 +29,5 @@ Türkçe dilinde Rosa
 ## Rosa 7
 
 > Ey Elçi, insanların senin hakkında söyledikleri ve düşündükleri seni üzmesin ve kendini yalnız bırakılmış hissetme. İnsanlar arasında, tarafımızdan damgalanmış ve emirlerimizi bekleyen erkekler ve kadınlar bulacaksın. Senin bütün hayat hikâyeni bildiğimiz gibi, onların da hayat hikâyelerini başından sonuna kadar biliriz.
+
+*Açıklama yardımı: İnsanlar Elçi'yi reddediyor, hatta onunla alay ediyorlar. Ağızlarından çıkan sözler, Elçi'ye ve Allah'a karşı tutumlarını ortaya koyuyor. Elçi'ye yardım etmeye veya Allah'ın Elçi aracılığıyla kendilerine iletilen talimatlarına uymaya istekli değiller. Vahiyde sözü edilen damgalama, insanlar arasında Allah'ın Elçi aracılığıyla kendilerine iletilen talimatlarını kabul etmeye ve yerine getirmeye hazır erkeklerin ve kadınların bulunduğu şeklinde anlaşılmalıdır. Dolayısıyla damgalama, bu talimatları kabul eden ve gereğini yerine getiren kişileri ifade eder. Bunlar, örneğin belirli bir yere ağaç dikmek veya birlikte bir eser hazırlamak gibi son derece basit görevler de olabilir.*
