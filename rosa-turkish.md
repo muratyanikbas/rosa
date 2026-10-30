@@ -28,4 +28,4 @@ Türkçe dilinde Rosa
 
 ## Rosa 7
 
-> Ey Elçi, insanların senin hakkında söyledikleri ve düşündükleri seni üzmesin ve kendini yalnız bırakılmış hissetme. İnsanlar arasında, tarafımdan damgalanmış ve emirlerimi bekleyen erkekler ve kadınlar bulacaksın. Senin bütün hayat hikâyeni bildiğimiz gibi, onların da hayat hikâyelerini başından sonuna kadar biliyorum.
+> Ey Elçi, insanların senin hakkında söyledikleri ve düşündükleri seni üzmesin ve kendini yalnız bırakılmış hissetme. İnsanlar arasında, tarafımızdan damgalanmış ve emirlerimizi bekleyen erkekler ve kadınlar bulacaksın. Senin bütün hayat hikâyeni bildiğimiz gibi, onların da hayat hikâyelerini başından sonuna kadar biliriz.

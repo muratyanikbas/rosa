@@ -28,4 +28,4 @@ Rosa in the English language (American English)
 
 ## Rosa 7
 
-> O Messenger, do not let what people say and think about you distress you, and do not feel abandoned. You will find among the people men and women who have been marked by me and are awaiting my commands. I know their entire life stories from beginning to end, just as we know your entire life story.
+> O Messenger, do not let what people say and think about you distress you, and do not feel abandoned. You will find among the people men and women who have been marked by us and are awaiting our commands. We know their entire life stories from beginning to end, just as we know your entire life story.

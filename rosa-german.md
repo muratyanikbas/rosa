@@ -28,4 +28,4 @@ Die Rosa in der deutschen Sprache
 
 ## Rosa 7
 
-> O Gesandter, lass dich nicht von dem bedrücken, was die Menschen über dich sagen und denken, und fühle dich nicht allein gelassen. Du wirst unter den Menschen Männer und Frauen finden, die von mir gebrandmarkt wurden und auf meine Befehle warten. Ich kenne ihre Lebensgeschichten von Anfang bis Ende, so wie wir auch deine gesamte Lebensgeschichte kennen.
+> O Gesandter, lass dich nicht von dem bedrücken, was die Menschen über dich sagen und denken, und fühle dich nicht allein gelassen. Du wirst unter den Menschen Männer und Frauen finden, die von uns gebrandmarkt wurden und auf unsere Befehle warten. Wir kennen ihre Lebensgeschichten von Anfang bis Ende, so wie wir auch deine gesamte Lebensgeschichte kennen.
