@@ -4,7 +4,7 @@ Die Rosa in der deutschen Sprache
 
 ## Rosa 1
 
-> Verkünde den Menschen: Murat Yanıkbaş ist der Gesandte Allah.
+> Verkünde den Menschen: Murat Yanıkbaş ist der Gesandte Allahs.
 
 ## Rosa 2
 
